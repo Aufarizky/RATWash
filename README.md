@@ -14,5 +14,7 @@ Nama Anggota :
 - Muhammad Rifki Yohandy (2020-011)
 - Aufa Rizki Abdi Maulana (2020-018)
 - Thurzi Retra Hamdani (2020-030)
+
 Syaifudin,.S.kom,.M.kom
+
 Universitas Muhammadiyah Malang
